@@ -1,0 +1,3 @@
+"Rule the World" is a song by English pop band Take That. It was released as the fifth single from their fourth studio album Beautiful World (2006). It was released in the United Kingdom on 21 October 2007 via digital download and as a CD single the following day.
+
+Take That performed the song at the London 2012 Olympic Games Closing Ceremony whilst the Olympic Flame was extinguished. Because the song was written for the 2007 fantasy film Stardust, the song was submitted for consideration at the 80th Academy Awards for Best Original Song but was not nominated.
